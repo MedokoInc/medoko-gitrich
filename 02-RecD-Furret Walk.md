@@ -1,3 +1,6 @@
+# Furret Walk
+## Lyrics by RecD
+
 Other pokemon can fly
 Majestically through the sky but
 I CAN WALK!
