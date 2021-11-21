@@ -1,3 +1,6 @@
+# Linus Said 
+## Lyrics by Rich Ashford
+
 Linus said that it was open
 Linus said that it was GPL
 All could use it for whatever they like
