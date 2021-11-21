@@ -1,3 +1,6 @@
+# Rappin' for Jesus
+## Lyrics by Pastor Jim Colerick and Mary Sue Colerick
+
 Well I wrote this song for the Christian youth
 I wanna teach kids the Christian truth
 If you wanna reach those kids on the street
